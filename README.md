@@ -9,3 +9,6 @@
 ## _September 26_
 ` Wow! I called it! Todoroki's backstory is worthy of a main character of a show! His power is so cool! When he used both his fire and his ice power at the sports competition, I was in love! Also, Deku was pretty cool when he was trying to make Shoto understand that rbelling against his father without using his fire was a stupid move. When he said, "It's your power isn't it?" I was going to cry. Both of them would really make a good team of heroes. Here is my favorite picture of Shoto.`
 ![Image](Screen Shot 2020-10-01 at 12.48.03 PM.png)
+
+#### _Website for a quick summary and overview of all the characters_
+https://bokunoheroacademia.fandom.com/wiki/My_Hero_Academia_Wiki
